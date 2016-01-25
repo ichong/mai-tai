@@ -14,7 +14,7 @@
 >An empty tale, of idleness and pain,  
 >Of two that loved, or did not love, and one  
 >Whose perplexed heart did evil, foolishly,  
->A long while since, and by some other sea  
+>A long while since, and by some other sea.  
 
 **_Rupert Brooke_**
 
