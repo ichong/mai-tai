@@ -18,4 +18,4 @@
 
 **_Rupert Brooke_**
 
-**[Public Domain Poetry]**(http://www.public-domain-poetry.com/rupert-brooke/waikiki-9702)
+[**Public Domain Poetry**](http://www.public-domain-poetry.com/rupert-brooke/waikiki-9702)
